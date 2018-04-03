@@ -1,1 +1,0 @@
-# PRHG-platform
